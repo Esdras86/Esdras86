@@ -14,7 +14,7 @@
  
 <br>
  
-### Para entrar em contato comigo acesse logo abaixo👇 
+### Para entrar em contato comigo acesse logo abaixo!
  
 <div> 
  
